@@ -7,3 +7,5 @@ Replicare è difficile
 Concludere poi...
 
 E daie!!!
+
+Chi la dura la vince!!!
