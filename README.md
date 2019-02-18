@@ -9,3 +9,5 @@ Concludere poi...
 E daie!!!
 
 Chi la dura la vince!!!
+
+Grande
